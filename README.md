@@ -6,6 +6,9 @@ I am finishing my at the University of Chicago. I am studying data science and p
 
 ![](C:\Users\wgrai\OneDrive\Pictures\young_me.jpg)
 
+I was once featured on the MLB website thanks to my famous friend!
+[link](https://www.mlb.com/news/jeremy-guthrie-has-canadian-chess-mate/c-154869054)
+
 I like to travel. Here is a list of some of the places that I have been outside of the US:
 
 * France
